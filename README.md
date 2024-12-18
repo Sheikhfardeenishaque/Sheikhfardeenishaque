@@ -51,4 +51,4 @@ I'm [Your Name], a **Computer Science Graduate from AUST** with a passion for te
 ---
 
 ### 💬 Fun Fact  
-My dream skydiving location is **Dubai**! 🌍  
+My dream skydiving location is **Pakhre**! 🌍  
